@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @buildsrike7
-- 👀 I’m interested in making app, funtions or trolling people
+- 👀 I’m interested in making app, functions or trolling people
 - 🌱 I’m currently learning python,c# and html
 - 💞️ I’m looking to collaborate on apps just for fun!!!
 - 📫 How to reach me? just message my gmail buildsrike7@gmail.com =)
